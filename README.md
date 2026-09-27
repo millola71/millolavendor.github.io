@@ -1,2 +1,2 @@
-# millolavendor.github.io
+# millolavendor.com
 Millola Vendor - Shop Smart, Shop Millola
